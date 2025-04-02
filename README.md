@@ -1,6 +1,8 @@
 <h1>BTCC-verwijzingscode 'BTCCBONUS' – Tot 11.000 USDT bonus & 50% korting op kosten</h1>
 <h2>Inleiding</h2>
 <p>Op zoek naar de beste manier om je handelsbeloningen op BTCC te maximaliseren? Met de nieuwste BTCC-verwijzingscode (promotiecode of kortingscode) ontvangen nieuwe gebruikers een welkomstbonus tot 11.000 USDT en 50% korting op handelskosten. Of je nu een beginner of een ervaren handelaar bent, profiteer van de exclusieve voordelen van deze BTCC-verwijzingsbonus.</p>
+<a href="https://partner.btcc.com/us/c/BTCCBONUS/9303" target="_blank">https://partner.btcc.com/us/c/BTCCBONUS/9303</a>
+
 <h2>BTCC-registratiebonus tot 11.000 USDT</h2>
 <h3>BTCC-verwijzingscode - BTCCBONUS</h3>
 <table border="1">
